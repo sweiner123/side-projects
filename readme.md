@@ -1,1 +1,1 @@
-#Side Projects made by Same Weiner
+# Side Projects made by Sam  Weiner
